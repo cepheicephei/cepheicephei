@@ -1,1 +1,3 @@
-"# cepheicephei" 
+# cepheicephei public repo
+
+Welcome!
