@@ -1,1 +1,1 @@
-Check out instagram.com/cepheicephei 💙
+Check out [instagram.com/cepheicephei](instagram.com/cepheicephei) 💙
